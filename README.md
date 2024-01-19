@@ -1,4 +1,4 @@
-# Hello, I'm Dharnish Patel! 👋
+# Hello, I'm Dharnish D P! 👋
 
 ## About Me
 
